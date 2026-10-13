@@ -2,20 +2,26 @@
 
 my mixes
 
-[bakumineko](https://drive.google.com/file/d/1Q_hBzqLodGRIKROyqO7AQzSbiLn5YN7X/view?usp=sharing)
-![](https://i.ibb.co/ccNG3VWy/screenshot538.jpg)
+[bakumineko](https://drive.google.com/drive/folders/121jomJjPp-ekEISc-NVDTchVwW7nhEhX?usp=drive_link)
+![](https://i.ibb.co/nqZkHX3b/screenshot612.jpg)
+![](https://i.ibb.co/Tqn1mx9N/screenshot613.jpg)
+![](https://i.ibb.co/KMb16hF/screenshot614.jpg)
+![](https://i.ibb.co/d4hZrRLw/screenshot616.jpg)
 
-[bakumineko vaxei cursor](https://drive.google.com/file/d/1f45A-gWt1wOacspdK_4L9U95vXy8hoV4/view?usp=drive_link)
-![](https://i.ibb.co/fYHBGLQf/screenshot537.jpg)
+[life is beautiful old](https://drive.google.com/file/d/13yqvZsiWStXkwSKhsBsDE0xaWT8BIVgD/view?usp=drive_link)
+![](https://i.ibb.co/jZz26GFp/screenshot611.jpg)
+![](https://i.ibb.co/Zp03n8Cd/screenshot608.jpg)
+![](https://i.ibb.co/SXKNJDmd/screenshot610.jpg)
+![](https://i.ibb.co/Gv3TCyPn/screenshot609.jpg)
 
-[bakumineko cool numbers](https://drive.google.com/file/d/1fZixXX6Ygll6DLnKVfjTLVMDviGE6SDf/view?usp=drive_link)
-![](https://i.ibb.co/LdwjfgXj/screenshot536.jpg)
+[life is beautiful](https://drive.google.com/file/d/1eSPSpyRFq8zeaS261mJK99IDK8--45vZ/view?usp=sharing)
+![](https://i.ibb.co/rKJb7qd0/screenshot603.jpg)
+![](https://i.ibb.co/q3QWyBzk/screenshot600.jpg)
+![](https://i.ibb.co/h6fCDqs/screenshot602.jpg)
+![](https://i.ibb.co/TxZnFyVS/screenshot601.jpg)
 
-[life is beautiful](https://drive.google.com/file/d/171EFmDIjJTTb5X8hDWJTAWyVs2y2Oo7Q/view?usp=drive_link)
-![](https://i.ibb.co/qM2W6rmK/screenshot541.jpg)
-
-[life is beautiful cool numbers mono](https://drive.google.com/file/d/16QChagGh-zCOcL_rTzlS7bw0r9K0p71D/view?usp=drive_link)
-![](https://i.ibb.co/8nYktFGN/screenshot543.jpg)
-
-[za**biste](https://drive.google.com/file/d/1x9lhMQVMVzPF__UBIhXXY0o_iW4sCOap/view?usp=sharing)
-![](https://i.ibb.co/zW706kgL/screenshot554.jpg)
+[mukan no tama](https://drive.google.com/file/d/1IrlkjgXxCj9ZYX_nVh1uD799nWq334KV/view?usp=sharing)
+![](https://i.ibb.co/nMh93Gyy/screenshot604.jpg)
+![](https://i.ibb.co/B2Z3vf11/screenshot605.jpg)
+![](https://i.ibb.co/QF23hPCY/screenshot607.jpg)
+![](https://i.ibb.co/d0XBnHvD/screenshot606.jpg)
